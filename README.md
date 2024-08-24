@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AL11wq
+- 👋 Hi, I’m @ALfian u can call me AL
 - 👀 I’m interested in Programming
 - 🌱 I’m currently learning how to become a better human being
 - 💞️ I’m looking to collaborate on ...
